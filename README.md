@@ -1,1 +1,0 @@
-# gruposcout6cucanca
